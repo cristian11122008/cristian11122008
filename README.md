@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cristian11122008
-- 👀 I’m interested in Filmmaking, RC veaciles, Football, and Youtubing
+- 👀 I’m interested in Filmmaking, RC vehicles, Football, and Youtubing
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on, NOTHING!
 - 📫 How to reach me, DON'T!
